@@ -6,3 +6,5 @@
 
 - So very excited to join TW!!
 - Let's hope I make it through!
+
+- Oh! Meet my cat Cookie! He is very excited for this new chapter of our lives as well!
