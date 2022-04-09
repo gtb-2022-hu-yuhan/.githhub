@@ -8,3 +8,4 @@
 - Let's hope I make it through!
 
 - Oh! Meet my cat Cookie! He is very excited for this new chapter of our lives as well!
+![IMG_7188](https://user-images.githubusercontent.com/102740368/162560899-15cc0c95-7182-49e0-b1b5-355c93322bd2.jpg)
